@@ -1,4 +1,4 @@
-# 
+# Premium Affinity Photo effets pour Mac OS | Automatique Affinity Photo effets pour PC Windows. Avec éditeur de shaders et esquiver et brûler — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
